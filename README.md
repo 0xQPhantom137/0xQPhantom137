@@ -35,4 +35,4 @@ It's slow. It's messy. It works.
 Portfolio: [@Github](https://0xqphantom137.github.io/)
 Reddit: [@Reddit](https://reddit.com/user/0xQPhantom137)
 
-These are the only places I'm actively posting. If you want to reach me, the email button there works.
+These are the only places I'm actively posting. If you want to reach me, contact me through reddit, or email.
