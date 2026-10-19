@@ -32,6 +32,7 @@ It's slow. It's messy. It works.
 
 ## find me
 
-Portfolio: [0xqphantom137.github.io](https://0xqphantom137.github.io/)
+Portfolio: [@Github](https://0xqphantom137.github.io/)
+Reddit: [@Reddit](https://reddit.com/user/0xQPhantom137)
 
-That's the only place I'm actively posting. If you want to reach me, the email button there works.
+These are the only places I'm actively posting. If you want to reach me, the email button there works.
